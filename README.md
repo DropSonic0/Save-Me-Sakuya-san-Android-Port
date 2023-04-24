@@ -1,4 +1,4 @@
-# Save-Me-Sakuya-san-Android-Port
+# Save-Me-Sakuya-san!-Android-Port
 original game of Sigyaad Team
 ,
 Fan Games SAGA Touhou Project by Team Shanghai Alic
